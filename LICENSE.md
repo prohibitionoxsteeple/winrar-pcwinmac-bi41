@@ -1,4 +1,4 @@
-# 
+# Smart WinRAR scripts for Mac OS | Top WinRAR scripts for PC Windows. Featuring data backup and registry optimization — optimized for maximum performance on every platform.
 
 
 
